@@ -5,3 +5,4 @@ If you have any problem with the file then come in my discord server https://dis
 If you dont know how to use .py file then JUST USE THE EXE!!
 
 PEACE 
+lolol
